@@ -1,3 +1,5 @@
 # PowerGhost - Coming Soon
-https://github.com/user-attachments/assets/b1629255-ae81-4cf6-9fc7-2d59426908d5
+https://github.com/user-attachments/assets/ebb10dac-fc8a-4a44-a80b-3316817f25fd
+
+
 
